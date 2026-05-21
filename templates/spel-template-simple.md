@@ -10,4 +10,4 @@
 | C |X|🔲|O|
 
 ### Logboek
-1. ..
+1. Daan won
